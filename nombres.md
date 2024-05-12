@@ -33,3 +33,4 @@ Alex de México
 
 Juan Delgado de Colombia
 
+Walter de Rosario 👀 
